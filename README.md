@@ -1,8 +1,7 @@
-## hello ★ 
+## HEYA!! ★ 
 
-i go by neptune or reirei! i am a regi enjoyer /wonderlightidols <br />
+i go by neptune and i use any pronouns!! <br />
 i sit at docks or the solarballs area, feel free to interact as thats why im sitting there in the first place <br />
-oh yeah if you follow me ill probably follow you back!!!!!!!
-( 2026 ver: yeah no everything in here is outdated im pretty sure the solarballs area doesnt even exist anymore.)
+CHECKKKK OUT MY RENTRY!! ->> [https://rentry.co/solarballs]
 
 ![](https://github.com/neptunezzz/neptunezzz/blob/main/Kd7GqW.gif)
