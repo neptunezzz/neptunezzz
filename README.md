@@ -5,4 +5,5 @@ i sit at docks or the solarballs area, feel free to interact as thats why im sit
 CHECKKKK OUT MY RENTRY!! ->> [https://rentry.co/solarballs]
 
 ![](https://github.com/neptunezzz/neptunezzz/blob/main/Kd7GqW.gif)
+
 Dont talk to me if you like uranus x neptune!! i hate yall! theyre literally cousins
